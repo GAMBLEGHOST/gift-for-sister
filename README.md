@@ -1,12 +1,12 @@
 ㅤㅤ![1000013973](https://github.com/user-attachments/assets/877b4138-29f2-403c-8b30-f7f151b0bf72)
 
 
-<img width="736" height="736" alt="1000013989" src="https://github.com/user-attachments/assets/14899d4f-1a01-49de-9861-c3ad16f6bd2f" />
+<img width="777" height="777" alt="1000013989" src="https://github.com/user-attachments/assets/14899d4f-1a01-49de-9861-c3ad16f6bd2f" />
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&italic=true&size=20&color=9FB8A0&center=true&vCenter=true&width=720&lines=%22+here,+if+you+scream,+things+will+really+get+harder+for+you.+%22" />
+  <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&italic=true&size=20&color=9FB8A0&center=true&vCenter=true&width=720&lines=%22+here,+if+you+scream,+things+will+really+get+harder+for+you.+-harlequin+%22" />
 </p>
 
-ㅤㅤ![1000013980](https://github.com/user-attachments/assets/b89aa115-3d99-41b8-ba19-5f9f181bf4bc)
+ㅤㅤ![green heart thing again](https://github.com/user-attachments/assets/b89aa115-3d99-41b8-ba19-5f9f181bf4bc)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤ![1000013993](https://github.com/user-attachments/assets/c73c4bc2-8915-43d7-b3db-1663dddf1cba)
@@ -19,6 +19,11 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
+
+
+꒰⁠ ![sticker](https://github.com/user-attachments/assets/99b41318-f8ef-4839-915e-598af20eab6b) im lilly me cosmo and harle irl meh- bla bla blah- ![sticker](https://github.com/user-attachments/assets/1c392f99-d4f3-4c56-8b4a-a4198a58d9ad) ꒱⁠
+
+
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
@@ -30,13 +35,19 @@
 
 ㅤㅤㅤ![1000013991](https://github.com/user-attachments/assets/d6f4cfb2-b213-4c21-bac1-9e7978fc0899)
 ![1000013990](https://github.com/user-attachments/assets/26a0ee9a-71e4-4f9a-8ef0-2863a5e619da)
-![1000013942](https://github.com/user-attachments/assets/82be6d6c-208b-4722-a19b-aeb5123e9bfe)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![1000013992](https://github.com/user-attachments/assets/bf1c6907-02c2-4221-ad1c-b3f703cf3246)
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 ㅤㅤㅤㅤㅤ![theeeeeeee ummmm flower thing](https://github.com/user-attachments/assets/c91b95f9-326c-416f-9cc2-4f2b73d6c50c)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤ<img width="99" height="56" alt="1000014006" src="https://github.com/user-attachments/assets/b3701d09-adb4-4821-a14d-4453f45177a7" />
+<img width="99" height="55" alt="1000014008" src="https://github.com/user-attachments/assets/3e0029b4-28c5-4ff1-b1e5-7598de4c33e2" />
+
+ㅤ
 ![freak harlequin..put a pic or keep this idk brudda](https://github.com/user-attachments/assets/0b9ae53b-2b7e-40c1-8485-193b64d6db66)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
